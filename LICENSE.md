@@ -1,4 +1,4 @@
-
+Experience king legacy like never before with hidden Script for king legacy, the #1 Script. Includes esp and no clip for unbeatable performance.
 
 
 
